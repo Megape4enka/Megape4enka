@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋🤔⚡
 
 <!--
 **Megape4enka/Megape4enka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
